@@ -1,16 +1,16 @@
-## Hi there 👋
+*𝑀𝑎𝑓𝑖𝑎 𝑟𝑒𝑚𝑎𝑑𝑒 𝑑𝑒𝑑𝑖𝑐𝑎𝑡𝑒𝑑 𝑎𝑐𝑐𝑜𝑢𝑛𝑡 (𝑒𝑣𝑒𝑛 𝑖𝑓 𝑖𝑡𝑠 𝐻𝑢𝑑𝑠𝑜𝑛)*
+___
+" 𝐺𝑟𝑒𝑒𝑡𝑖𝑛𝑔𝑠, 𝑡ℎ𝑖𝑠 𝑖𝑠 𝐻𝑢𝑑𝑠𝑜𝑛. "
 
-<!--
-**Theultimatewarlock/Theultimatewarlock** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+> 𝑡𝑟𝑦𝑖𝑛𝑔 𝑡𝑜 𝑓𝑖𝑛𝑑 𝑚𝑎𝑓𝑖𝑎 𝑓𝑎𝑛𝑠 𝑖𝑛 𝑓ℎ𝑒 𝑤𝑖𝑙𝑑 𝑚𝑖𝑠𝑠𝑖𝑜𝑛 𝑓𝑎𝑖𝑙𝑒𝑑 :(
 
-Here are some ideas to get you started:
+• 𝐼 𝑎𝑏𝑠𝑜𝑙𝑢𝑡𝑒𝑙𝑦 𝑙𝑜𝑣𝑒 𝑀𝑜𝑟𝑡𝑒, 𝐶𝑎𝑙𝑙𝑢𝑚, 𝐶𝑎𝑛𝑑𝑖𝑐𝑒, 𝐻𝑎𝑟𝑝𝑒𝑟, 𝑎𝑛𝑑 𝑉𝑖𝑣𝑖𝑒𝑛𝑛𝑒.
+_
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+" 𝐼 𝑠𝑢𝑝𝑝𝑜𝑠𝑒 𝑦𝑜𝑢 𝑑𝑜 𝑛𝑜𝑡 𝑚𝑖𝑛𝑑 𝑡𝑎𝑘𝑖𝑛𝑔 𝑎 𝑠𝑒𝑎𝑡 ? "
+
+![1792266395531-8138e5fd-c4d2-4af4-a330-e09ed7637e25.png](https://www.image2url.com/r2/default/images/1792266395531-8138e5fd-c4d2-4af4-a330-e09ed7637e25.png)
+> (𝑎𝑟𝑡 𝑏𝑦 𝑚𝑒. 𝐻𝑢𝑑𝑠𝑜𝑛 :𝐷 )
+
+- 𝐴 𝑓𝑎𝑐𝑡 𝑖𝑠, 𝐼 𝑎𝑚 𝑎 𝑀𝑜𝑟𝑡𝑒 𝑎𝑛𝑑 𝐶𝑎𝑙𝑙𝑢𝑚 𝑚𝑎𝑖𝑛.
+- #1 𝑃𝑂𝐼𝑆𝑂𝑁𝐸𝑅 𝐻𝐴𝑇𝐸𝑅!! (ℎ𝑎𝑡𝑒𝑑 𝑖𝑡 𝑠𝑖𝑛𝑐𝑒 𝑟𝑒𝑣𝑒𝑎𝑙𝑒𝑑 𝑖𝑛 𝑡ℎ𝑒 𝑑𝑖𝑠𝑐. 𝑠𝑒𝑟𝑣𝑒𝑟)
